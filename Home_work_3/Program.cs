@@ -8,11 +8,3 @@
 
     5
     45*/
-hnbvnhfnvb
-    f
-
-    b
-    cv
-    bcv
-    b
-    cv
